@@ -1,4 +1,4 @@
-# This Season
+# Cornerstone Hoo Peninsula and Strood Community
 
 ## Sermons
 
